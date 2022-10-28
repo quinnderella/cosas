@@ -1,0 +1,1 @@
+"Los sonetos, las baladas, las odas y las elegías son subgéneros del género lírico. Las obras de este tipo suelen agruparse actualmente como poemas, tal como se conoce a las obras poéticas. Con respecto al ritmo y la métrica de una obra poética, dependen en absoluto del autor."
